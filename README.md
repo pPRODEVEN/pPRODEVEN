@@ -1,0 +1,5 @@
+- 👋 Bonjour, Je suis PRODEVEN
+- 👀 Je m'interesse à ETHOS la nouvelle radio de chez FRSKY
+- 🌱 Je souhaite donner mon avis sur ce développement
+- 💞️ j'aimerais me joindre au perfectionnement car OPEN TX est très puissant
+- 📫 Si je peux expliquer les demandes faites par d'autres modelistes
